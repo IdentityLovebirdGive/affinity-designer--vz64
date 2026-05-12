@@ -1,4 +1,4 @@
-# 
+# Affinity Designer for macOS rare Brushes: blend modes & UI themes is the best Affinity Designer for macOS brush, featuring blend modes and UI themes. Safe, efficient, and
 
 
 
